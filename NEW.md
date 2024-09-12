@@ -1,0 +1,1 @@
+Zaebala eta ebatoria
